@@ -1,0 +1,2 @@
+# kijoba-no-kami
+qwertyuiop
